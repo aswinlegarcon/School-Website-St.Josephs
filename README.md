@@ -65,7 +65,6 @@ For any inquiries or support, please contact us at:
 - **Email**: aswinkirubanantham@gmail.com
 - **Instagram**: aswinlegarcon
 
-Visit our website at [https://stjosephsondipudur.com/](https://stjosephsondipudur.com/).
 
 ---
 
